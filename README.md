@@ -18,5 +18,5 @@ ${\textsf{\color{#75565e}@ aesvic ' s alt　!　whisper　2　interact　as　us
   <br> ${\textsf{\color{#634049}sign　my　ata　if　you're　too　scared　to　talk　to　me　directly　!}}$ 
   </p>
   <p align="center">
-  <a href="https://medkit.atabook.org">atabook</a>    <a href="https://rentry.co/victor-grantz">link directory</a>  <a href="https://guns.lol/exorspace">guns.lol</a>
+  <a href="https://medkit.atabook.org">atabook</a>    <a href="https://rentry.co/victor-grantz">link directory</a>  <a href="https://guns.lol/exorspace">guns.lol</a> <a href="https://rentry.co/shadow-peach">pt rentry</a>
     </p>
