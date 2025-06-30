@@ -14,7 +14,7 @@ ${\textsf{\color{#634049}a　solemn　vow　of　absolute　commitment　...　i
     <img src="https://files.catbox.moe/rftfrv.png"/>
 </p>
 <p align="center">
-${\textsf{\color{#75565e}@ aesvic ' s alt　!　whisper　2　interact　as　usual　.　}}$ 
+${\textsf{\color{#75565e}@ aesvic ' s alt　!　whisper　2　interact　as　usual　.　c+h comf}}$ 
   <br> ${\textsf{\color{#634049}sign　my　ata　if　you're　too　scared　to　talk　to　me　directly　!}}$ 
   </p>
   <p align="center">
