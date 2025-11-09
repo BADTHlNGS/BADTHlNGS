@@ -19,4 +19,7 @@ ${\textsf{\color{#75565e}@ aesvic ' s alt　!　whisper　2　interact　as　us
   </p>
   <p align="center">
   <a href="https://medkit.atabook.org">atabook</a>    <a href="https://rentry.co/victor-grantz">link directory</a>  <a href="https://guns.lol/exorspace">guns.lol</a> <a href="https://rentry.co/shadow-peach">pt rentry</a>
+    <br>
+    <br>
+    https://youtu.be/-_HWojvwMn8?si=rX3v9X6A_FaZW7ye
     </p>
